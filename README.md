@@ -1,2 +1,2 @@
 # boostmylocalrank.co.uk
-Soaring Through The Local Search Rankings
+Soaring through local search rankings
